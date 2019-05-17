@@ -1,5 +1,5 @@
 # i-am-ironman
-Collection of my favourite Marvel Iron man wallpaper / images
+Collection of Marvel Iron man wallpaper / images
 
 **Contributions are welcome!**
 
